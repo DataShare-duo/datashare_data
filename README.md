@@ -3,6 +3,7 @@
 
 订阅群组：https://t.me/datashare_data
 
+![TG订阅群](T订阅群.png)
 
 # 资源列表
 
