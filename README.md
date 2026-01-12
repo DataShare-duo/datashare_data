@@ -14,6 +14,7 @@
 |  Rust | https://pan.quark.cn/s/bc8aa780659e |
 |  数据分析 | https://pan.quark.cn/s/19e1f9dae6c0 |
 |  数学 | https://pan.quark.cn/s/f194e87e6678 |
+|  其他 | https://pan.quark.cn/s/635b67d95c21 |
 
 ## 影视
 ### 电视剧
@@ -21,12 +22,14 @@
 |  ----  | ----  |
 | 2025年  |  |
 |  2026年 |  |
+|历史年份|https://pan.quark.cn/s/05bb6e198bbc|
 
 ### 电影
 |  资源名称   | 链接  |
 |  ----  | ----  |
 | 2025年  | https://pan.quark.cn/s/3cbba2f5d6a0 |
 |  2026年 |  |
+|历史年份|https://pan.quark.cn/s/342702d55101|
 
 ### 音乐
 https://pan.quark.cn/s/03504811c46e
