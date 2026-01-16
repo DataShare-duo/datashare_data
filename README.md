@@ -36,3 +36,8 @@ https://pan.quark.cn/s/03504811c46e
 
 ### MV
 https://pan.quark.cn/s/2a203dfcee32
+
+## 教学视频
+|  资源名称   | 链接  |
+|  ----  | ----  |
+| Python  | https://pan.quark.cn/s/5ae29330e530 |
