@@ -41,3 +41,4 @@ https://pan.quark.cn/s/2a203dfcee32
 |  资源名称   | 链接  |
 |  ----  | ----  |
 | Python  | https://pan.quark.cn/s/5ae29330e530 |
+| 前端 | https://pan.quark.cn/s/42bdc4596427 |
