@@ -20,8 +20,8 @@
 ### 电视剧
 |  资源名称   | 链接  |
 |  ----  | ----  |
-| 2025年  | https://pan.quark.cn/s/4b6e46ae4a21 |
-|  2026年 | https://pan.quark.cn/s/4b6e46ae4a21 |
+| 2025年  | https://pan.quark.cn/s/0ad070502b96 |
+|  2026年 | https://pan.quark.cn/s/7543f8f14ea2 |
 |历史年份| https://pan.quark.cn/s/0808106b32c2 |
 
 ### 电影
