@@ -4,6 +4,7 @@
 订阅群组：https://t.me/datashare_data
 
 ![TG订阅群](T订阅群.png)
+
 **更详细的资源分享：** [资源详情](share_detail.md)
 
 # 资源列表
