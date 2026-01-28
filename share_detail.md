@@ -16,7 +16,6 @@
 | 《守护兽狐小九之童游山海》狐小九第四季                                                                    | https://pan.quark.cn/s/e03a36ffbb5d |
 | 世界历史 CCTV 记录片 1080P                                                                                | https://pan.quark.cn/s/6eefd0b09bf0 |
 | 木偶惊魂  4K                                                                                              | https://pan.quark.cn/s/b6bf1f191bc0 |
-| 生万物 4K 60帧                                                                                            | https://pan.quark.cn/s/26e6cab5726d |
 | 私家侦探 HDR                                                                                              | https://pan.quark.cn/s/c1e18770ffec |
 | 音乐                                                                                                      | https://pan.quark.cn/s/2f6c891faa09 |
 | 书籍                                                                                                      | https://pan.quark.cn/s/01356a76b29b |
@@ -42,8 +41,6 @@
 | 水浒传.1998.全43集.4K高清修复版                                                                           | https://pan.quark.cn/s/26fd32380fa6 |
 | 新水浒传 86集 4K                                                                                          | https://pan.quark.cn/s/5c18729e3e64 |
 | 人民的名义(2017)                                                                                          | https://pan.quark.cn/s/bf93daebf7bd |
-| 人间世 [4K-2160P] 8.4G                                                                                    | https://pan.quark.cn/s/d90800165084 |
-| 人世间  全58集 4K                                                                                         | https://pan.quark.cn/s/e3bd15f17471 |
 | 南京照相馆 [蓝光原盘珍藏版]                                                                               | https://pan.quark.cn/s/cd28625c9ac3 |
 | 误杀 三部合集                                                                                             | https://pan.quark.cn/s/90fdff38ba2b |
 | 百夜楼  4K HDR                                                                                            | https://pan.quark.cn/s/9388f1898e28 |
@@ -95,7 +92,6 @@
 | 迪士尼系列动画139部蓝光珍藏版                                                                             | https://pan.quark.cn/s/ace3711aa522 |
 | 风起陇西 24集全 4K                                                                                        | https://pan.quark.cn/s/362a0ee7cc93 |
 | 【李亚鹏版】笑傲江湖 40集全 4K                                                                            | https://pan.quark.cn/s/a13f4d2d1736 |
-| 影视                                                                                                      | https://pan.quark.cn/s/352dd261ce50 |
 | 倚天屠龙记 (2003) 4K                                                                                      | https://pan.quark.cn/s/2af335ef22a6 |
 | 天龙八部 (2003)                                                                                           | https://pan.quark.cn/s/2206e4c855a1 |
 | 神雕侠侣 (2006) 黄晓明、刘亦菲版 1080P                                                                    | https://pan.quark.cn/s/9ea25f468c83 |
