@@ -42,3 +42,7 @@ https://pan.quark.cn/s/2a203dfcee32
 |  ----  | ----  |
 | Python  | https://pan.quark.cn/s/5ae29330e530 |
 | 前端 | https://pan.quark.cn/s/42bdc4596427 |
+
+# 更详细的资源分享
+[资源详情](share_detail.md)
+
