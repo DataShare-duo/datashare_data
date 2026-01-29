@@ -1,9 +1,19 @@
 # 分享数据
 
-更新时间：2026-01-28 
+更新时间：2026-01-29 
 
 | 资源名称                                                                                                  | 分享链接                            |
 |:----------------------------------------------------------------------------------------------------------|:------------------------------------|
+| 海底小纵队 （共9季）全集+大电影 国语配音                                                                  | https://pan.quark.cn/s/20172f285404 |
+| 豆瓣年度读书榜单                                                                                          | https://pan.quark.cn/s/6af3f7e28cc9 |
+| 史前星球S1-S3  史前星球：冰川时代                                                                         | https://pan.quark.cn/s/acdc475f4729 |
+| 狼图腾 (2015)                                                                                             | https://pan.quark.cn/s/86f9b17f3fea |
+| 赤壁（共2部）                                                                                             | https://pan.quark.cn/s/7b9d317e44bb |
+| 《人在囧途》+《泰囧》+《港囧》1-3部全                                                                     | https://pan.quark.cn/s/1a0f2d0b024d |
+| 壮志凌云1~2                                                                                               | https://pan.quark.cn/s/2270f7506c4d |
+| 决战中途岛                                                                                                | https://pan.quark.cn/s/224694eb941a |
+| 珍珠港 [美国战争片]                                                                                       | https://pan.quark.cn/s/ebcff59f26be |
+| 少帅【1080P】全48集                                                                                       | https://pan.quark.cn/s/27c27e40d50b |
 | 鹿鼎记 2014.韩栋.50集                                                                                     | https://pan.quark.cn/s/3d8863e59383 |
 | 鹿鼎记 2014.韩栋.50集                                                                                     | https://pan.quark.cn/s/6fa873752b55 |
 | 书剑恩仇录 (2002)(动作 古装)(赵文卓 关咏荷)                                                               | https://pan.quark.cn/s/af7d53335f7a |
