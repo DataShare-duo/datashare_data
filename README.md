@@ -5,7 +5,7 @@
 
 ![TG订阅群](T订阅群.png)
 
-**更详细的资源分享：** [资源详情](share_detail.md)
+**更详细的资源分享：** https://github.com/DataShare-duo/datashare_data/blob/main/share_detail.md
 
 # 资源列表
 
