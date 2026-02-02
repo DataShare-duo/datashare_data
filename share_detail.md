@@ -4,6 +4,32 @@
 
 | 资源名称                                                                                                  | 分享链接                            |
 |:----------------------------------------------------------------------------------------------------------|:------------------------------------|
+| 《告密者》（2010年）                                                                                      | https://pan.quark.cn/s/a95d79d3c634 |
+| 《宫心计》（2009年）                                                                                      | https://pan.quark.cn/s/bb6e3a07e611 |
+| 《墙壁之间》（2008年）                                                                                    | https://pan.quark.cn/s/f4eaa24341f7 |
+| 《猫和老鼠》（1965-2025年）                                                                               | https://pan.quark.cn/s/36c5efdfc525 |
+| 《告别有情天》（1993年）                                                                                  | https://pan.quark.cn/s/12e24f010a82 |
+| 《优雅贵族的休假指南》（2026年）                                                                          | https://pan.quark.cn/s/f5e242249ebf |
+| 《刺杀肯尼迪》（1991年）                                                                                  | https://pan.quark.cn/s/7fcbd5bd03e6 |
+| 《城市猎人》（1993年）                                                                                    | https://pan.quark.cn/s/555d9838fe6d |
+| 《成长教育》（2009年）                                                                                    | https://pan.quark.cn/s/7711357d4bcd |
+| 《陈真》（1982年）                                                                                        | https://pan.quark.cn/s/7bd107ea6a19 |
+| 《舞蹈家首游团》（2023年）                                                                                | https://pan.quark.cn/s/f55ce348187e |
+| 《东北警察故事》（共2部）（2021-2023年）                                                                  | https://pan.quark.cn/s/65b537fa89db |
+| 《天涯明月刀》（1985年）                                                                                  | https://pan.quark.cn/s/fdcbd85a1acb |
+| 《光猪六壮士》（电影+电视剧）（1997-2023年）                                                              | https://pan.quark.cn/s/2f61fb45f860 |
+| 《人猿星球》（共5部）（1968-1973年）                                                                      | https://pan.quark.cn/s/084807c60878 |
+| 《跟着哥去玛雅：九把钥匙》（2023年）                                                                      | https://pan.quark.cn/s/5f2b6e21d293 |
+| 《高斯福庄园》（2001年）                                                                                  | https://pan.quark.cn/s/3e927bcffcb5 |
+| 《人生只租不卖》（2026年）                                                                                | https://pan.quark.cn/s/51253d3ce779 |
+| 《刺杀肯尼迪》（1991年）                                                                                  | https://pan.quark.cn/s/50b8d1bc93a2 |
+| 猫和老鼠 1-14季全集+15部大电影                                                                            | https://pan.quark.cn/s/bead15bb86d4 |
+| 108部短剧                                                                                                 | https://pan.quark.cn/s/0ddc5447aff1 |
+| 飞屋环游记                                                                                                | https://pan.quark.cn/s/26595668eba1 |
+| 长河落日  44集全                                                                                          | https://pan.quark.cn/s/e13c9cef7f8d |
+| 星际迷航系列合集                                                                                          | https://pan.quark.cn/s/0ae52190c97c |
+| 刺杀小说家  2部                                                                                           | https://pan.quark.cn/s/6e1dfd31ef0c |
+| 特工迷阵 4K                                                                                               | https://pan.quark.cn/s/c03db2f9cb89 |
 | 海底小纵队 （共9季）全集+大电影 国语配音                                                                  | https://pan.quark.cn/s/20172f285404 |
 | 豆瓣年度读书榜单                                                                                          | https://pan.quark.cn/s/6af3f7e28cc9 |
 | 史前星球S1-S3  史前星球：冰川时代                                                                         | https://pan.quark.cn/s/acdc475f4729 |
