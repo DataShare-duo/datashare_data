@@ -1,4 +1,6 @@
 *.py
+*.sh
+log.log 
 
 .idea
 config
