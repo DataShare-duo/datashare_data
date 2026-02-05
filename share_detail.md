@@ -1,9 +1,75 @@
 # 分享数据
 
-更新时间：2026-02-04 
+更新时间：2026-02-05 
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《千鹤先生》（2024年）                                                  | https://pan.quark.cn/s/784cf72f4035 |
+| 《骗中骗》（1973年）                                                   | https://pan.quark.cn/s/f887ccd2b1ca |
+| 《旁观者》（2023年）                                                   | https://pan.quark.cn/s/fb02c50a00e8 |
+| 《霹雳先锋》（1988年）                                                  | https://pan.quark.cn/s/4c1bbbb84c79 |
+| 《徘徊年代》（2021年）                                                  | https://pan.quark.cn/s/4c021486798d |
+| 《朋友游戏》（2022年）                                                  | https://pan.quark.cn/s/a56fc9ebe5b8 |
+| 《拍得不错》（2016年）                                                  | https://pan.quark.cn/s/041277590f1a |
+| 《平安夜》（2021年）                                                   | https://pan.quark.cn/s/53f61234fd8b |
+| 《她杀之心》（2024年）                                                  | https://pan.quark.cn/s/32db627db5f5 |
+| 《看着我的双眼》（2024年）                                                | https://pan.quark.cn/s/cb73ed0debbb |
+| 《尸体沐浴》（2024年）                                                  | https://pan.quark.cn/s/0b0461cdb413 |
+| 《朝圣》（2025年）                                                    | https://pan.quark.cn/s/6c9a325dfe7d |
+| 《邪恶保镖》（2025年）                                                  | https://pan.quark.cn/s/b047c6553b1c |
+| 《人道主义吸血鬼征自杀志愿者》（2023年）                                         | https://pan.quark.cn/s/515c407598ec |
+| 《毗湿奴降临》（2024年）                                                 | https://pan.quark.cn/s/0148c72d9745 |
+| 《桃姐》（2011年）                                                    | https://pan.quark.cn/s/d1fc2f6e35da |
+| 《Over Easy》（2024年）                                             | https://pan.quark.cn/s/70478f3a5066 |
+| 《哪吒之魔童降世》（2019年）                                               | https://pan.quark.cn/s/ca775a4f016c |
+| 《内心的怪物》（2025年）                                                 | https://pan.quark.cn/s/e1455575436a |
+| 《南巫》（2021年）                                                    | https://pan.quark.cn/s/2e5ed3314496 |
+| 《女王》（2006年）                                                    | https://pan.quark.cn/s/05905c4c60e1 |
+| 《内特拉姆》（2021年）                                                  | https://pan.quark.cn/s/55e9e4369b68 |
+| 《南侠展昭》（1994年）                                                  | https://pan.quark.cn/s/32f15fe7ad14 |
+| 《难兄难弟》（1997年）                                                  | https://pan.quark.cn/s/9c7d4188ae72 |
+| 《楚留香传奇》（1979年）                                                 | https://pan.quark.cn/s/712e0bde90e7 |
+| 《怒火·重案》（2021年）                                                 | https://pan.quark.cn/s/e0158443f878 |
+| 《南国野兽》（2012年）                                                  | https://pan.quark.cn/s/d6b3796ac046 |
+| 《A计划》（2007年）                                                   | https://pan.quark.cn/s/4572b3f50446 |
+| 《米纳里》（2020年）                                                   | https://pan.quark.cn/s/5b8d0527a1ed |
+| 《慕尼黑》（2005年）                                                   | https://pan.quark.cn/s/57ff1da6c61b |
+| 《秘密与谎言》（1996年）                                                 | https://pan.quark.cn/s/502184b87d60 |
+| 《迈克尔·克莱顿》（2007年）                                               | https://pan.quark.cn/s/5decc0da158d |
+| 《曼克》（2020年）                                                    | https://pan.quark.cn/s/1935b4e77053 |
+| 《梦幻之地》（1989年）                                                  | https://pan.quark.cn/s/60799eff4e5b |
+| 《美国丽人》（1999年）                                                  | https://pan.quark.cn/s/bb26cfb43c5f |
+| 《美国狙击手》（2014年）                                                 | https://pan.quark.cn/s/0513f1cd1528 |
+| 《米尔克》（2008年）                                                   | https://pan.quark.cn/s/fe4f242421ec |
+| 《烈血大风暴》（1988年）                                                 | https://pan.quark.cn/s/aa4f8011fc47 |
+| 《老无所依》（2007年）                                                  | https://pan.quark.cn/s/1e2365f3cfb2 |
+| 《猎杀本·拉登》（2012年）                                                | https://pan.quark.cn/s/abd3cb191ad9 |
+| 《灵魂歌王》（2004年）                                                  | https://pan.quark.cn/s/f0da5154d838 |
+| 《洛城机密》（1997年）                                                  | https://pan.quark.cn/s/450a0ebbc362 |
+| 《哭泣的游戏》（1992年）                                                 | https://pan.quark.cn/s/9b4cb1702f02 |
+| 《恐惧的代价》（1953年）                                                 | https://pan.quark.cn/s/39b4fcbe5af0 |
+| 《卡波特》（2005年）                                                   | https://pan.quark.cn/s/85be7d071581 |
+| 《卡戴珊家族》（共7季）（2022-2025年）                                       | https://pan.quark.cn/s/d9bccf5ea39a |
+| 《机智问答》（1994年）                                                  | https://pan.quark.cn/s/d18d8dbe63e2 |
+| 《金属之声》（2020年）                                                  | https://pan.quark.cn/s/c732e45988ea |
+| 《惊曝内幕》（1999年）                                                  | https://pan.quark.cn/s/550d59e8c8c7 |
+| 《终极宿舍》（2014年）                                                  | https://pan.quark.cn/s/4acf2e1cf96e |
+| 《聚焦》（2015年）                                                    | https://pan.quark.cn/s/f661ef46a7b7 |
+| 《解锁你的爱》（2024年）                                                 | https://pan.quark.cn/s/374d890a1950 |
+| 《孩子们都很好》（2010年）                                                | https://pan.quark.cn/s/1e06db116768 |
+| 《婚姻故事》（2019年）                                                  | https://pan.quark.cn/s/27d1d1727242 |
+| 《后裔》（2011年）                                                    | https://pan.quark.cn/s/c951877372a9 |
+| [国产剧]《好戏一出》（2018年）                                             | https://pan.quark.cn/s/f46815bf246f |
+| 《笑傲江湖》（周润发版）（1984年）                                            | https://pan.quark.cn/s/87ef5e666765 |
+| 《天龙八部》（惠天赐版）（1990年）                                            | https://pan.quark.cn/s/2679f8a90292 |
+| 《笑傲江湖》（任贤齐版）（2000年）                                            | https://pan.quark.cn/s/f42d0c0ca24c |
+| 《神雕侠侣》（孟飞版）（1984年）                                             | https://pan.quark.cn/s/0503591288b7 |
+| 《笑傲江湖》（马景涛版）（2000年）                                            | https://pan.quark.cn/s/af27f3236675 |
+| 《神雕侠侣》（李铭顺版）（1998年）                                            | https://pan.quark.cn/s/027666f8515e |
+| 《神雕侠侣》（任贤齐版）（1998年）                                            | https://pan.quark.cn/s/c5e8b2934d60 |
+| 《天龙八部》（钟汉良版）（2013年）                                            | https://pan.quark.cn/s/a8239b7f2197 |
+| 《书剑恩仇录》（郑少秋版）（1976年）                                           | https://pan.quark.cn/s/1b12b7255d46 |
+| 《天龙八部》（2021年）                                                  | https://pan.quark.cn/s/3f7bda08846d |
 | 《碧血剑》（1976年）                                                   | https://pan.quark.cn/s/2bf8957839b3 |
 | 《侠客行》（莫少聪版）（1985年）                                             | https://pan.quark.cn/s/1536280e5bce |
 | 《连城诀》（郭晋安版）（2004年）                                             | https://pan.quark.cn/s/5da40af22211 |
