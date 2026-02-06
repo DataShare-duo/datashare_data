@@ -1,9 +1,77 @@
 # 分享数据
 
-更新时间：2026-02-05 
+更新时间：2026-02-06 
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《无依之地》（2020年）                                                  | https://pan.quark.cn/s/3d9459d10c5e |
+| 《午夜巴黎》（2011年）                                                  | https://pan.quark.cn/s/50bb95ac9468 |
+| 《爱我》（2025年）                                                    | https://pan.quark.cn/s/0f20c9404f79 |
+| 《乌云背后的幸福线》（2012年）                                              | https://pan.quark.cn/s/357ae420a17f |
+| 《坏蛋联盟：闯关大行动》（2025年）                                            | https://pan.quark.cn/s/4ad60f9b5166 |
+| 《隔壁房间》（2024年）                                                  | https://pan.quark.cn/s/41eb51d7e5eb |
+| 《万物理论》（2014年）                                                  | https://pan.quark.cn/s/af79ea4682b9 |
+| 《为黛西小姐开车》（1989年）                                               | https://pan.quark.cn/s/1f708a4b5c29 |
+| 《我们的秘密》（2024年）                                                 | https://pan.quark.cn/s/c50df6340a76 |
+| 《我们的爱情》（2025年）                                                 | https://pan.quark.cn/s/98ccb5755276 |
+| 《唯爱永存》（2022年）                                                  | https://pan.quark.cn/s/d2a38b50c55a |
+| 《奈莉》（2016年）                                                    | https://pan.quark.cn/s/491b0f48c4d6 |
+| 《同心难改》（2008年）                                                  | https://pan.quark.cn/s/cf45fb4281ce |
+| 《通天塔》（2022年）                                                   | https://pan.quark.cn/s/6a139313b44b |
+| 《亚历克斯与艾玛》（2003年）                                               | https://pan.quark.cn/s/6ae6875c416a |
+| 《她唇之下》（2016年）                                                  | https://pan.quark.cn/s/7ffa44c86bc9 |
+| 《她》（2013年）                                                     | https://pan.quark.cn/s/01e9f83480e0 |
+| 《水形物语》（2017年）                                                  | https://pan.quark.cn/s/d04cb523e64d |
+| 《十万个冷笑话》（共3季）（2012-2015年）                                      | https://pan.quark.cn/s/c89f93eb1d1b |
+| 《史努比秀》（共3季）（2021-2023年）                                        | https://pan.quark.cn/s/6fd2d6e92cb2 |
+| 《神秘河》（2003年）                                                   | https://pan.quark.cn/s/4543d50b3d9e |
+| 《狩龙人拉格纳》（2023年）                                                | https://pan.quark.cn/s/e71eaa9f1150 |
+| 《闪亮的风采》（1996年）                                                 | https://pan.quark.cn/s/eb5bc7e50dc5 |
+| 《四个婚礼和一个葬礼》（1994年）                                             | https://pan.quark.cn/s/64f02ea973d7 |
+| 《毁灭号地车》（1983年）                                                 | https://pan.quark.cn/s/cfb528c0e0ff |
+| 《收播新闻》（1987年）                                                  | https://pan.quark.cn/s/5544b6cabd6b |
+| [夸克网盘]《上班女郎》（1988年） - 地主盘-地主家有余粮                               | https://pan.quark.cn/s/55a04e5e0334 |
+| 《仁心解码》（共2季）（2009-2013年）                                        | https://pan.quark.cn/s/a7ffffcb6f6b |
+| 《山村老尸》（共3部）（1999-2002年）                                        | https://pan.quark.cn/s/b8fd1582bbc5 |
+| 《燃烧》（2021年）                                                    | https://pan.quark.cn/s/a0088ea51a09 |
+| 《阮玲玉》（1985年）                                                   | https://pan.quark.cn/s/63279008a44c |
+| 《侵入者》（2019年）                                                   | https://pan.quark.cn/s/ac1f76417eee |
+| 《2025-2026 跨年晚会大合集》（共190G） - 地主盘-地主家有余粮                        | https://pan.quark.cn/s/c73c4ed2ccee |
+| 《日落巴黎》（1989年）                                                  | https://pan.quark.cn/s/40724654682c |
+| 《人间的条件》（共6部）（1959-1961年）                                       | https://pan.quark.cn/s/5a3ec7c7094b |
+| 《如果》（1968年）                                                    | https://pan.quark.cn/s/4bb3e1253f38 |
+| 《柔道龙虎榜》（2004年）                                                 | https://pan.quark.cn/s/87d66df7d90c |
+| 《情越双白线》（2010年）                                                 | https://pan.quark.cn/s/848f1a098af5 |
+| 《强心脏联盟》（2023年）                                                 | https://pan.quark.cn/s/af8ee1793ef7 |
+| 《千禧曼波》（2001年）                                                  | https://pan.quark.cn/s/f031c3ebf0f3 |
+| 《恋爱朝九晚五》（2026年）                                                | https://pan.quark.cn/s/50ef17a13af1 |
+| 《千王之王2000》（1999年）                                              | https://pan.quark.cn/s/b1e99bf74e57 |
+| 《窃听大阴谋》（1974年）                                                 | https://pan.quark.cn/s/aeace8f72e58 |
+| 《枪神》（1993年）                                                    | https://pan.quark.cn/s/f5ce4a0a55eb |
+| 《乔乔的异想世界》（2019年）                                               | https://pan.quark.cn/s/5630a58c12bd |
+| 《千面天王》（1993年）                                                  | https://pan.quark.cn/s/edc71744eeec |
+| 《奇谋妙计五福星》（1983年）                                               | https://pan.quark.cn/s/720d61ea3a85 |
+| 《阿金》（1996年）                                                    | https://pan.quark.cn/s/518176163243 |
+| 《墓中酷刑》（2024年）                                                  | https://pan.quark.cn/s/316f6e5865bd |
+| 《丧湿》（2024年）                                                    | https://pan.quark.cn/s/7ddcf4070238 |
+| 《独行月球》（2022年）                                                  | https://pan.quark.cn/s/1632838154af |
+| 《所有的土路都有盐的味道》（2023年）                                           | https://pan.quark.cn/s/3c0e26f9ab80 |
+| 《地狱无门》（1980年）                                                  | https://pan.quark.cn/s/efb738ac026e |
+| 《天脉传奇》（2002年）                                                  | https://pan.quark.cn/s/c4c4093459a0 |
+| 《造房子的人》（2019年）                                                 | https://pan.quark.cn/s/7733e4b23cd5 |
+| 《奇迹》（1989年）                                                    | https://pan.quark.cn/s/1aab4434b880 |
+| 《拳精》（1978年）                                                    | https://pan.quark.cn/s/96b30f512c79 |
+| 《7号差馆》（2004年）                                                  | https://pan.quark.cn/s/cbc7a53ec3aa |
+| 《青出于蓝》（2004年）                                                  | https://pan.quark.cn/s/052976419898 |
+| 《前程似锦的女孩》（2020年）                                               | https://pan.quark.cn/s/e7b097d551c0 |
+| 《青春差馆》（1985年）                                                  | https://pan.quark.cn/s/da791ad257d7 |
+| 《求爱敢死队》（1988年）                                                 | https://pan.quark.cn/s/911b20d1a615 |
+| 《奇人奇案》（2000年）                                                  | https://pan.quark.cn/s/6fb4955ef547 |
+| 《全职高手》（动画剧+真人剧+特别篇+小说）（2017-2024年）                             | https://pan.quark.cn/s/bcb045034b7e |
+| 《奇巧计程车》（动画+剧场版）（2021-2022年）                                    | https://pan.quark.cn/s/ed43e5199dea |
+| 《强剑》（2007年）                                                    | https://pan.quark.cn/s/6249afa73fb8 |
+| 《一本书一座城》（共2季）（2015-2017年）                                      | https://pan.quark.cn/s/1fcadcf4174c |
+| 《小小少年》（2021年）                                                  | https://pan.quark.cn/s/e31a507dbb26 |
 | 《千鹤先生》（2024年）                                                  | https://pan.quark.cn/s/784cf72f4035 |
 | 《骗中骗》（1973年）                                                   | https://pan.quark.cn/s/f887ccd2b1ca |
 | 《旁观者》（2023年）                                                   | https://pan.quark.cn/s/fb02c50a00e8 |
