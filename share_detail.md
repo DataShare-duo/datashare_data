@@ -1,9 +1,75 @@
 # 分享数据
 
-更新时间：2026-02-06 
+更新时间：2026-02-07 
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《少林木人巷》（1976年）                                                 | https://pan.quark.cn/s/f9a0533736dc |
+| 《双龙会》（1992年）                                                   | https://pan.quark.cn/s/78a2d9a86692 |
+| 《世界上最糟糕的人》（2021年）                                              | https://pan.quark.cn/s/13ed15203712 |
+| 《世界》（2004年）                                                    | https://pan.quark.cn/s/c6c2e8db6b83 |
+| 《蛇鹤八步》（1978年）                                                  | https://pan.quark.cn/s/3a0d1058b3d0 |
+| 《神话》（2005年）                                                    | https://pan.quark.cn/s/daddc1df40eb |
+| 《十二生肖》（2012年）                                                  | https://pan.quark.cn/s/f83fa70a9201 |
+| 《上帝之手》（2021年）                                                  | https://pan.quark.cn/s/7bf4f13bfb60 |
+| 《树大招风》（2016年）                                                  | https://pan.quark.cn/s/ab0e7f1d9a0b |
+| 《圣斗士星矢》（1986-2023年）                                            | https://pan.quark.cn/s/dbad849202f3 |
+| 《圣诞男孩》（2021年）                                                  | https://pan.quark.cn/s/1d78f54889b2 |
+| 《斯德哥尔摩》（2021年）                                                 | https://pan.quark.cn/s/dde57a82342e |
+| 《师弟出马》（1980年）                                                  | https://pan.quark.cn/s/70670aa1e075 |
+| 《杀出个黄昏》（2021年）                                                 | https://pan.quark.cn/s/7c2a07aaf67d |
+| 《伤城》（2006年）                                                    | https://pan.quark.cn/s/0a6f1c27a703 |
+| 《斯宾塞》（2021年）                                                   | https://pan.quark.cn/s/309e38973055 |
+| 《十八年后的终极告白》（共3季）（2020-2023年） - 地主盘-地主家有余粮                      | https://pan.quark.cn/s/42ad033746c6 |
+| 《16bit的感动》（2023年）                                              | https://pan.quark.cn/s/1aeadcf5d5fa |
+| 《爱神》（2004年）                                                    | https://pan.quark.cn/s/94d717f15f6e |
+| 《爱上费加罗》（2020年）                                                 | https://pan.quark.cn/s/134cb2fe9331 |
+| 《1917》（2019年）                                                  | https://pan.quark.cn/s/970d6e422096 |
+| 《爱》（2012年）                                                     | https://pan.quark.cn/s/54115ffacc45 |
+| 《小鸡快跑》（共2部）（2000-2023年）                                        | https://pan.quark.cn/s/c3f01a1081b8 |
+| 《贝尔法斯特》（2021年）                                                 | https://pan.quark.cn/s/61c00602b5da |
+| 《黑白魔女库伊拉》（2021年）                                               | https://pan.quark.cn/s/fe30beca2935 |
+| 《犬之力》（2021年）                                                   | https://pan.quark.cn/s/a7d143d1b485 |
+| 《皆为爱》（2021年）                                                   | https://pan.quark.cn/s/f61cd2143383 |
+| 《朱诺》（2007年）                                                    | https://pan.quark.cn/s/83e00b3ded7f |
+| 《战马一号》（2023年）                                                  | https://pan.quark.cn/s/ccbf8a2dacda |
+| 《大宋提刑官》（共2季）（2005-2006年）                                       | https://pan.quark.cn/s/4ea52d5fa5d8 |
+| 《神探狄仁杰》合集（2004-2017年）                                          | https://pan.quark.cn/s/65c574d88c7b |
+| 《韩城攻略+东京攻略+欧洲攻略》（2000-2018年）                                   | https://pan.quark.cn/s/f4a7cb3b1271 |
+| 《至暗时刻》（2017年）                                                  | https://pan.quark.cn/s/a24665771422 |
+| 《艺术家》（2011年）                                                   | https://pan.quark.cn/s/ba6c2d4be259 |
+| 《狱乱情迷》（2025年）                                                  | https://pan.quark.cn/s/9ee4fdb40e5b |
+| 《阳光小美女》（2006年）                                                 | https://pan.quark.cn/s/7420a33d2eaf |
+| 《一个明星的诞生》（1954年）                                               | https://pan.quark.cn/s/50d39c3ebd66 |
+| 《永恒站》（2025年）                                                   | https://pan.quark.cn/s/54469915df68 |
+| 《因父之名》（1993年）                                                  | https://pan.quark.cn/s/f07c10dbb1b2 |
+| 《无边泳池》（2023年）                                                  | https://pan.quark.cn/s/51e75a8e82f5 |
+| 《未来罪行》（2022年）                                                  | https://pan.quark.cn/s/2a1b66224e17 |
+| 《钛》（2021年）                                                     | https://pan.quark.cn/s/794900eb6809 |
+| 《隐形人》（2020年）                                                   | https://pan.quark.cn/s/f16e05978b11 |
+| 《女巫》（2015年）                                                    | https://pan.quark.cn/s/414fdc6268d9 |
+| 《云月奇缘》（2025年）                                                  | https://pan.quark.cn/s/a06b767520aa |
+| 《逆转时光只为你》（2024年）                                               | https://pan.quark.cn/s/6989922f7305 |
+| 《相助》（2011年）                                                    | https://pan.quark.cn/s/bfe8f3632b7e |
+| 《黄金三镖客》（1966年）                                                 | https://pan.quark.cn/s/c85d9ab292e0 |
+| 《迷失东京》（2003年）                                                  | https://pan.quark.cn/s/d09ac869a656 |
+| 《虎胆救援》（2024年）                                                  | https://pan.quark.cn/s/9d4aeb7b3599 |
+| 《敦刻尔克》（2017年）                                                  | https://pan.quark.cn/s/64607fce0ea6 |
+| 《奥本海默》（2023年）                                                  | https://pan.quark.cn/s/ce06d6345db9 |
+| 《灰猎犬号》（2020年）                                                  | https://pan.quark.cn/s/3de451831ad3 |
+| 《地球风暴》（2022年）                                                  | https://pan.quark.cn/s/ea5570d2d4cf |
+| 《饥饿游戏》（共5部）（2012-2023年）                                        | https://pan.quark.cn/s/f039db006caa |
+| 《蠢蛋进化论》（2006年）                                                 | https://pan.quark.cn/s/f7882d4c6fc9 |
+| 《摇滚校园》（2013年）                                                  | https://pan.quark.cn/s/c7d17dcfad52 |
+| 《女拳霸》（2008年）                                                   | https://pan.quark.cn/s/1d8656bf558f |
+| 《机械姬》（2014年）                                                   | https://pan.quark.cn/s/59860a8250d6 |
+| 《小妇人》（2017年）                                                   | https://pan.quark.cn/s/d91932610194 |
+| 《勇者无惧》（2022年）                                                  | https://pan.quark.cn/s/565cb5ea8c88 |
+| 《神的孩子全跳舞》（2008年）                                               | https://pan.quark.cn/s/3d7171203e9f |
+| 《丑闻前夜》（2025年）                                                  | https://pan.quark.cn/s/d535656b5e8a |
+| 《行动：阿姨们》（2025年）                                                | https://pan.quark.cn/s/4312b4f7e0f6 |
+| 《汤村天使的吐息》（2025年）                                               | https://pan.quark.cn/s/0c879b0cb5c8 |
+| 《反美阴谋》（2020年）                                                  | https://pan.quark.cn/s/ec4a7696201b |
 | 《无依之地》（2020年）                                                  | https://pan.quark.cn/s/3d9459d10c5e |
 | 《午夜巴黎》（2011年）                                                  | https://pan.quark.cn/s/50bb95ac9468 |
 | 《爱我》（2025年）                                                    | https://pan.quark.cn/s/0f20c9404f79 |
