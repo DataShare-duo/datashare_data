@@ -1,9 +1,76 @@
 # 分享数据
 
-更新时间：2026-02-07 
+更新时间：2026-02-08 
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《太空百合战姬》（2024年）                                                | https://pan.quark.cn/s/4be8ad691673 |
+| 《正常人》（2020年）                                                   | https://pan.quark.cn/s/bf7d50d0f349 |
+| 《苦战科科达》（2006年）                                                 | https://pan.quark.cn/s/fa506f5c2ae3 |
+| 《恐惧盛宴》（2019年）                                                  | https://pan.quark.cn/s/aa964e288cd2 |
+| 《大空头》（2015年）                                                   | https://pan.quark.cn/s/bd3b758e66ac |
+| 《藩篱》（2016年）                                                    | https://pan.quark.cn/s/d20725f4eb5b |
+| 《欺诈游戏》（2014年）（韩国版）                                             | https://pan.quark.cn/s/1530f625c23a |
+| 《新兵》（第3季）（2025年）                                               | https://pan.quark.cn/s/26eb8ab220c9 |
+| 《黄真伊》（2006年）                                                   | https://pan.quark.cn/s/18911597c666 |
+| 《天国王朝》（2005年）                                                  | https://pan.quark.cn/s/79e4a0b6faaf |
+| 《鹿鼎记》（2000年）（张卫健版）                                             | https://pan.quark.cn/s/c1626b25e298 |
+| 《鹿鼎记》（2020年）（张一山版）                                             | https://pan.quark.cn/s/b409bd7badb2 |
+| 《旺角卡门》（1988年）                                                  | https://pan.quark.cn/s/ae39accfb0a1 |
+| 《僵尸道长》（共2季）（1995-1996年）                                        | https://pan.quark.cn/s/897402a43ec1 |
+| 《最佳损友》（1988年）                                                  | https://pan.quark.cn/s/5f3db8574a47 |
+| 《侠客行》（梁朝伟版）（1989年）                                             | https://pan.quark.cn/s/bab6b176915a |
+| 《特务迷城》（2001年）                                                  | https://pan.quark.cn/s/b693271da10e |
+| 《生命之树》（2011年）                                                  | https://pan.quark.cn/s/a17a326ddb40 |
+| 《天涯侠医》（2004年）                                                  | https://pan.quark.cn/s/0656bdace0fc |
+| 《天若有情》（共3部）（1990-1996年）                                        | https://pan.quark.cn/s/ebed52a019eb |
+| 《空军大电影：只要活着》（2022年）                                            | https://pan.quark.cn/s/88f342ce6655 |
+| 《天国大魔境》（2023年）                                                 | https://pan.quark.cn/s/dd80a40e8a7b |
+| 《天降奇缘》（1995年）                                                  | https://pan.quark.cn/s/d9a81f727a80 |
+| 《胜者为王》（共4季）（1991-2010年）                                        | https://pan.quark.cn/s/6579c8d54a7e |
+| 《神勇双妹唛》（1989年）                                                 | https://pan.quark.cn/s/afe077640873 |
+| 《受益人》（2019年）                                                   | https://pan.quark.cn/s/9dd35e3f2e52 |
+| 《心魔》（2020年）                                                    | https://pan.quark.cn/s/f0edccb17e95 |
+| 《岁月风云》（2007年）                                                  | https://pan.quark.cn/s/f1b04a75f05d |
+| 《善意的背叛》（1992年）                                                 | https://pan.quark.cn/s/4821bd163707 |
+| 《澳门街 十月初五的月光》（2000年）                                           | https://pan.quark.cn/s/daeff3db1db6 |
+| 《上海滩》（1980年）                                                   | https://pan.quark.cn/s/3edee8855fbf |
+| 《石溪杀手》（2025年）                                                  | https://pan.quark.cn/s/8ed07a6a38b0 |
+| 《科巴尼》（2022年）                                                   | https://pan.quark.cn/s/defab1e29a6a |
+| 《新生欢迎周：大学恐怖故事合集》（2024年）                                        | https://pan.quark.cn/s/595385fc96fd |
+| 《仰泳》（2017年）                                                    | https://pan.quark.cn/s/f19fc8d35ea9 |
+| 《芳心魔术师》（2022年）                                                 | https://pan.quark.cn/s/b9ad1a45b5be |
+| 《危险乘客》（2021年）                                                  | https://pan.quark.cn/s/04a17db0fdb1 |
+| 《蛇形刁手》（1978年）                                                  | https://pan.quark.cn/s/cee8c5014188 |
+| 《送我上青云》（2019年）                                                 | https://pan.quark.cn/s/1bcb9ba7d7a6 |
+| 《杀无赦》（2018年）                                                   | https://pan.quark.cn/s/aa533a03e3d8 |
+| 《莎翁情史》（1998年）                                                  | https://pan.quark.cn/s/0f5537f9bdb9 |
+| 《食为奴》（2014年）                                                   | https://pan.quark.cn/s/78dc981831c1 |
+| 《沙滩仔与周师奶》（1991年）                                               | https://pan.quark.cn/s/c75d5688ed7c |
+| 《神探瓦雷斯：绑票追缉令》（2024年）                                           | https://pan.quark.cn/s/f5dcb5684548 |
+| 《鬼市》（2025年）                                                    | https://pan.quark.cn/s/da884f9ca215 |
+| 《报社》（2025年）                                                    | https://pan.quark.cn/s/f230298195f1 |
+| 《领航人》（2023年）                                                   | https://pan.quark.cn/s/bd757152c1f9 |
+| 《吹牛老爹现形记》（2025年）                                               | https://pan.quark.cn/s/5deafb94414c |
+| 《神偷军团》（2021年）                                                  | https://pan.quark.cn/s/a69db919908e |
+| 《神探大战》（2022年）                                                  | https://pan.quark.cn/s/9ca3518d3e4a |
+| 《蜀山：新蜀山剑侠》（1983年）                                              | https://pan.quark.cn/s/174deb50c187 |
+| 《绅士现形记》（1966年）                                                 | https://pan.quark.cn/s/111f5a27d073 |
+| 《丧尸宇宙》（共3季）（2023-2025年）                                        | https://pan.quark.cn/s/be310d05fd80 |
+| 《死尸死时四十四》（2023年）                                               | https://pan.quark.cn/s/48895776c8ed |
+| 《搜神传》（2008年）                                                   | https://pan.quark.cn/s/486806ed5310 |
+| 《杀手》（2020年）                                                    | https://pan.quark.cn/s/641a9eadaeeb |
+| 《摄氏零度·春光再现》（1999年）                                             | https://pan.quark.cn/s/ea39a31d44f8 |
+| 《查理·辛的演艺人生》（2025年）                                             | https://pan.quark.cn/s/61fe06ee3bef |
+| 《舒马赫》（2021年）                                                   | https://pan.quark.cn/s/0cb07084a1d3 |
+| 《追随》（1998年）                                                    | https://pan.quark.cn/s/c1d8aeb6a0df |
+| 《元祖！BanG Dream酱》（2025年）                                        | https://pan.quark.cn/s/ff574577636d |
+| 《疯狂前女友》（共4季）（2015-2018年）                                       | https://pan.quark.cn/s/3b28d11f1e1c |
+| 《八美图》（2022年）                                                   | https://pan.quark.cn/s/bc6f0fe206a0 |
+| 《斯巴达克斯：亚述家族》（2025年）                                            | https://pan.quark.cn/s/58174e4d8519 |
+| 《Soho区惊魂夜》（2021年）                                              | https://pan.quark.cn/s/1e81817f4c19 |
+| 《皮囊》（共7季）（2007-2013年）                                          | https://pan.quark.cn/s/12d1d99b92fb |
+| 《流行病：如何预防流感大爆发》（2020年）                                         | https://pan.quark.cn/s/ed3e91de4c51 |
 | 《少林木人巷》（1976年）                                                 | https://pan.quark.cn/s/f9a0533736dc |
 | 《双龙会》（1992年）                                                   | https://pan.quark.cn/s/78a2d9a86692 |
 | 《世界上最糟糕的人》（2021年）                                              | https://pan.quark.cn/s/13ed15203712 |
