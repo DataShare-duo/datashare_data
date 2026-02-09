@@ -1,9 +1,74 @@
 # 分享数据
 
-更新时间：2026-02-08 
+更新时间：2026-02-09 
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《醉刀客》（2025年）                                                   | https://pan.quark.cn/s/22e791a4134a |
+| 《日日是好日》（2018年）                                                 | https://pan.quark.cn/s/e361a5f7dc89 |
+| 《毒枭》（共3季）（2015-2017年）                                          | https://pan.quark.cn/s/cd4acbd14e59 |
+| 《消失的情人节》（2023年）（日版）                                            | https://pan.quark.cn/s/41ed262af8a8 |
+| 《我们是小僵尸》（2019年）                                                | https://pan.quark.cn/s/1884920a19c5 |
+| 《恶棍天使》（2015年）                                                  | https://pan.quark.cn/s/5cfca20acafa |
+| 《我爸救了圣诞节》（第2部）（2025年）                                          | https://pan.quark.cn/s/5b10d15c47a1 |
+| 《维莉蒂安娜》（1961年）                                                 | https://pan.quark.cn/s/24674d3b5dca |
+| 《终末的女武神》（共2季）（2021-2023年）                                      | https://pan.quark.cn/s/993f07a6637c |
+| 《认罪之罪》（2025年）                                                  | https://pan.quark.cn/s/bcef376dc8f8 |
+| 《寄宿房》（2025年）                                                   | https://pan.quark.cn/s/15a478a3568d |
+| 《生死线》（2009年）                                                   | https://pan.quark.cn/s/b8f94722b20d |
+| 《等待京道》（2025年）                                                  | https://pan.quark.cn/s/ed681f9eb700 |
+| 《雾的子午线》（1996年）                                                 | https://pan.quark.cn/s/15039c8ce23e |
+| 《南来北往》（2024年）                                                  | https://pan.quark.cn/s/caa170bb7d52 |
+| 《无处逢生》（2023年）                                                  | https://pan.quark.cn/s/b7a9600a7937 |
+| 《破坏之王》（1994年）                                                  | https://pan.quark.cn/s/93a32ddb4d90 |
+| 《黑帮少爷爱上我》（2021-2022）                                           | https://pan.quark.cn/s/339c9eb43fa4 |
+| 《亲戚满座》（2023年）                                                  | https://pan.quark.cn/s/c267672f3152 |
+| 《燃烧吧！篮朋友》（2025年）                                               | https://pan.quark.cn/s/773108f56eef |
+| 《星球大战：义军崛起》（共4季）（2014-2017年）                                   | https://pan.quark.cn/s/aeb93d425057 |
+| 《那年圣诞不一样》（2024年）                                               | https://pan.quark.cn/s/fddefd37e068 |
+| 《喵星人的奇思妙想》（2022年）                                              | https://pan.quark.cn/s/22a512674003 |
+| 《欲挽金乌》（2025年）                                                  | https://pan.quark.cn/s/773886c19282 |
+| 《魔法保姆麦克菲》（共2部）（2005-2010年）                                     | https://pan.quark.cn/s/232da2224dd5 |
+| 《普通的孩子》（2025年）                                                 | https://pan.quark.cn/s/d76c7667df18 |
+| 《五虎将之决裂》（1991年）                                                | https://pan.quark.cn/s/b9d9b4999a4f |
+| 《兄弟之生死同盟》（2007年）                                               | https://pan.quark.cn/s/59ea1a443488 |
+| 《兄弟会》（2019年）                                                   | https://pan.quark.cn/s/22404e10be5f |
+| 《黑金》（1997年）                                                    | https://pan.quark.cn/s/9edb243847ad |
+| 《头文字D》（2005年）                                                  | https://pan.quark.cn/s/7c47f7b09082 |
+| 《爱君如梦》（2001年）                                                  | https://pan.quark.cn/s/890660b49c16 |
+| 《闭上眼睛》（2023年）                                                  | https://pan.quark.cn/s/abfcb2dc6bd6 |
+| 《乌龟也会飞》（2004年）                                                 | https://pan.quark.cn/s/4fb59eb1018f |
+| 《闪闪的儿科医生》（共3季）（2023-2025年）                                     | https://pan.quark.cn/s/d35fce656b69 |
+| 《武媚娘传奇》（2014年）                                                 | https://pan.quark.cn/s/6f3b47b01e14 |
+| 《望夫成龙》（1990年）                                                  | https://pan.quark.cn/s/f23d18ebbb5a |
+| 《无敌幸运星》（1990年）                                                 | https://pan.quark.cn/s/b2833916fe3d |
+| 《维多利亚一号》（2010年）                                                | https://pan.quark.cn/s/37868a519054 |
+| 《幽灵》（2012年）                                                    | https://pan.quark.cn/s/39cc328744f6 |
+| 《雾都孤儿》（1948年+1968年+2005年）                                      | https://pan.quark.cn/s/bb971974f25c |
+| 《古墓丽影》（共3部）（2001-2018年）                                        | https://pan.quark.cn/s/5cdb93b1764e |
+| 《我还好吗》（2024年）                                                  | https://pan.quark.cn/s/1b7ffbf64e5a |
+| 《屋顶足球》（2023年）                                                  | https://pan.quark.cn/s/da51669a30cc |
+| 《安德森坠落》（2020年）                                                 | https://pan.quark.cn/s/c3d8f3269ee4 |
+| 《去死吧，我的爱》（2025年）                                               | https://pan.quark.cn/s/aa89cb6e9313 |
+| 《咒物寻凶》（2024年）                                                  | https://pan.quark.cn/s/9e490a53ea31 |
+| 《午夜恐怖：6夜》（2022年）                                               | https://pan.quark.cn/s/3c7fcc801f39 |
+| 《流星花园》（共2季）（2001-2002年）                                        | https://pan.quark.cn/s/1ffb6a877759 |
+| 《借口公司》（共2部）（2017-2023年）                                        | https://pan.quark.cn/s/b9bca38a4d52 |
+| 《战至巅峰》（共4季）（2022-2025年）                                        | https://pan.quark.cn/s/3174a4c8a3f4 |
+| 《死亡山地》（2015年）                                                  | https://pan.quark.cn/s/51bd06631027 |
+| 《包青天》（1993年）（何家劲版）                                             | https://pan.quark.cn/s/763d5f8a7076 |
+| 《非常关系》（2023年）                                                  | https://pan.quark.cn/s/b73c04b3029b |
+| 《无姓之人》（2009年）                                                  | https://pan.quark.cn/s/9e4dc0a1af22 |
+| 《来了》（2018年）                                                    | https://pan.quark.cn/s/62ee73d09578 |
+| 《遗弃之地》（2024年）                                                  | https://pan.quark.cn/s/57086574cf56 |
+| 《陷阱》（2024年）                                                    | https://pan.quark.cn/s/5e81ea0caa15 |
+| 《血爱成河》（2024年）                                                  | https://pan.quark.cn/s/f68e73ac100f |
+| 《我家的英雄》（电影+电视剧+漫画）（2023-2024年）                                 | https://pan.quark.cn/s/22411cd80294 |
+| 《忘不了》（2003年）                                                   | https://pan.quark.cn/s/a4da398138ca |
+| 《山海绝伦》（2022年）                                                  | https://pan.quark.cn/s/90e90bdb4c90 |
+| 《乌鸦》（2024年）                                                    | https://pan.quark.cn/s/2aa81b1c6787 |
+| 《如果我不曾见过太阳》（共2季）（2025年）                                        | https://pan.quark.cn/s/44be70faf1e1 |
+| 《看看你有多爱我》（2025年）                                               | https://pan.quark.cn/s/992484be10b1 |
 | 《太空百合战姬》（2024年）                                                | https://pan.quark.cn/s/4be8ad691673 |
 | 《正常人》（2020年）                                                   | https://pan.quark.cn/s/bf7d50d0f349 |
 | 《苦战科科达》（2006年）                                                 | https://pan.quark.cn/s/fa506f5c2ae3 |
