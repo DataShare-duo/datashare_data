@@ -4,6 +4,15 @@
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《流人》（2005年）                                                    | https://pan.quark.cn/s/f786f17cd79e |
+| 《樱桃的滋味》（1997年）                                                 | https://pan.quark.cn/s/82f8e3197c96 |
+| 《黑盒子》（2025年）                                                   | https://pan.quark.cn/s/f8bdddf31c83 |
+| 《不幸的幸会》（2025年）                                                 | https://pan.quark.cn/s/f95a84521916 |
+| 《血战摩苏尔》（2019年）                                                 | https://pan.quark.cn/s/dd2d7ee59811 |
+| 《西线无战事》（2022年）                                                 | https://pan.quark.cn/s/8fa9d2bd653c |
+| 《最后的夏天》（2025年）                                                 | https://pan.quark.cn/s/fa210d41d085 |
+| 《纸钞屋》（西班牙版）（共5季）（2017-2021年）                                   | https://pan.quark.cn/s/a81bed31c253 |
+| 《老板》（2025年）                                                    | https://pan.quark.cn/s/3233790bad0b |
 | 《黑巫》（2021年）                                                    | https://pan.quark.cn/s/26a15767b35d |
 | 《黑夜吞噬世界》（2018年）                                                | https://pan.quark.cn/s/73cd865eaacd |
 | 《集骨杀人狂》（2024年）                                                 | https://pan.quark.cn/s/fb8a3b3855b3 |
