@@ -1,9 +1,51 @@
 # 分享数据
 
-更新时间：2026-02-11 
+更新时间：2026-02-12 
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《小手指君别碰我》（2025年）                                               | https://pan.quark.cn/s/cca040c5da90 |
+| 《当你拯救完世界》（2022年）                                               | https://pan.quark.cn/s/7c55e997d0fa |
+| 《地狱客栈》（共2季）（2024-2025年）                                        | https://pan.quark.cn/s/8a53f8217c36 |
+| 《九巨头》（2025年）                                                   | https://pan.quark.cn/s/cbb823ea6d95 |
+| 《斯万的爱情》（1984年）                                                 | https://pan.quark.cn/s/94c465e93cb7 |
+| 《第四次爱情革命》（2025年）                                               | https://pan.quark.cn/s/b04d08eeae4f |
+| 《最后的大亨》（2016年）                                                 | https://pan.quark.cn/s/3133e7b3b826 |
+| 《1972 渚之萤火》（2025年）                                             | https://pan.quark.cn/s/23c536dc64aa |
+| 《恶念》（2025年）                                                    | https://pan.quark.cn/s/7bc39f48a6ad |
+| 《假面骑士ZEZTZ》（2025年）                                             | https://pan.quark.cn/s/26b7a89d0867 |
+| 《鼹鼠之歌》（共3部）（2013-2021年）                                        | https://pan.quark.cn/s/8dc5889b8118 |
+| 《椅子公司》（2025年）                                                  | https://pan.quark.cn/s/e8be097c7a14 |
+| 《诉讼女王》（2025年）                                                  | https://pan.quark.cn/s/49b4f55efec8 |
+| 《3年Z组银八老师》（2025年）                                              | https://pan.quark.cn/s/0a5dfb6207c4 |
+| 《白日之下》（2023年）                                                  | https://pan.quark.cn/s/deb21383a8ee |
+| 《在如果的世界里开始恋爱》（2025年）                                           | https://pan.quark.cn/s/4e3f688200a0 |
+| 《真心英雄》（1998年）                                                  | https://pan.quark.cn/s/ac70ee3b50b2 |
+| 《棋拳风暴》（2025年）                                                  | https://pan.quark.cn/s/e834a590e81b |
+| 《无可奈何》（2025年）                                                  | https://pan.quark.cn/s/eeb2116c6ad6 |
+| 《坠落的审判》（2023年）                                                 | https://pan.quark.cn/s/99d468e12d2b |
+| 《新浪潮》（1990年）                                                   | https://pan.quark.cn/s/53666006b704 |
+| 《声生不息》（共5季）（2022-2025年）                                        | https://pan.quark.cn/s/6451cf5ee8b4 |
+| 《同乐者》（2025年）                                                   | https://pan.quark.cn/s/bbfc51945f26 |
+| 《性梦爱三部曲》（共3部）（2024年）                                           | https://pan.quark.cn/s/f2c7f253d050 |
+| 《米尔扎布尔》（共3季）（2018-2024年）                                       | https://pan.quark.cn/s/434ad33d376c |
+| 《拯救嫌疑人》（2023年）                                                 | https://pan.quark.cn/s/ff7083950d72 |
+| 《卡普尔家开饭啦：宝莱坞第一家庭的用餐时光》（2025年）                                  | https://pan.quark.cn/s/b7a52234ce13 |
+| 《智齿》（2021年）                                                    | https://pan.quark.cn/s/37d52da61f6c |
+| 《真爱》（2018年）                                                    | https://pan.quark.cn/s/14efab30ea6f |
+| 《真相背后：虚假新闻与信息的代价》（2020年）                                       | https://pan.quark.cn/s/355ec3589f86 |
+| 《原振侠与卫斯理》（1986年）                                               | https://pan.quark.cn/s/ee4759355e6b |
+| 《胭脂扣》（1987年）                                                   | https://pan.quark.cn/s/1590d97f3b05 |
+| 《一招半式闯江湖》（1980年）                                               | https://pan.quark.cn/s/ad67adfc7c9b |
+| 《敏感之人》（2025年）                                                  | https://pan.quark.cn/s/b26f16492936 |
+| 《阁楼里的花：恶之渊源》（2022年）                                            | https://pan.quark.cn/s/10ed10ab4264 |
+| 《猎杀之后》（2025年）                                                  | https://pan.quark.cn/s/13cda3b99f26 |
+| 《临时决斗》（2025年）                                                  | https://pan.quark.cn/s/ce6f0c6766ff |
+| 《倚天屠龙记》（梁朝伟版）（1986年）                                           | https://pan.quark.cn/s/f5ab06acc25c |
+| 《白发魔女传》（1995年）（蔡少芬版）                                           | https://pan.quark.cn/s/111cc91a240c |
+| 《白发魔女传》魏秋桦版（1986年）                                             | https://pan.quark.cn/s/a0292790150a |
+| 《梅尔特伊》（2025年）                                                  | https://pan.quark.cn/s/ddcd2aa80592 |
+| 《Ha Gom：灵魂的黑暗》（2025年）                                          | https://pan.quark.cn/s/b8cc22ce1399 |
 | 《流人》（2005年）                                                    | https://pan.quark.cn/s/f786f17cd79e |
 | 《樱桃的滋味》（1997年）                                                 | https://pan.quark.cn/s/82f8e3197c96 |
 | 《黑盒子》（2025年）                                                   | https://pan.quark.cn/s/f8bdddf31c83 |
