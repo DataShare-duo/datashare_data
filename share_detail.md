@@ -4,6 +4,26 @@
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《兽藏我心》（2025年）                                                  | https://pan.quark.cn/s/4c4e99f13fc2 |
+| 《天使的对话》（1985年）                                                 | https://pan.quark.cn/s/6111b585e27e |
+| 《恐鲨》（2025年）                                                    | https://pan.quark.cn/s/ec88a252fe37 |
+| 《我是龙》（2025年）                                                   | https://pan.quark.cn/s/ecb0a725bbdd |
+| 《我的爱在我身边》（2009年）                                               | https://pan.quark.cn/s/5dcb8210a5e1 |
+| 《完美的世界》（2019年）                                                 | https://pan.quark.cn/s/40f20108755c |
+| 《痴鸡小队》（2025年）                                                  | https://pan.quark.cn/s/92b07425c284 |
+| 《贪吃树》（2000年）                                                   | https://pan.quark.cn/s/81671f82762e |
+| 《巴黎夏日》（2025年）                                                  | https://pan.quark.cn/s/b6c0cf824be6 |
+| 《我自己的房间》（2022年）                                                | https://pan.quark.cn/s/3763884291a8 |
+| 《夜幕将至》（2023年）                                                  | https://pan.quark.cn/s/f7648e291f2f |
+| 《阴阳守山人》（2024年）                                                 | https://pan.quark.cn/s/229051308d3a |
+| 《尚气与十环传奇》（2021年）                                               | https://pan.quark.cn/s/64afa50f7cea |
+| 《秩序信条》（2024年）                                                  | https://pan.quark.cn/s/6677582c03de |
+| 《创：战神》（2025年）                                                  | https://pan.quark.cn/s/ac7588cf833a |
+| 《无声的抵抗》（2020年）                                                 | https://pan.quark.cn/s/6c14f8c9232b |
+| 《假面忍者赤影》（2025年）                                                | https://pan.quark.cn/s/55ebed928678 |
+| 《巴尔干边界》（2019年）                                                 | https://pan.quark.cn/s/c551587f187c |
+| 《食梦录像》（2024年）                                                  | https://pan.quark.cn/s/46e09a56b9ee |
+| 《莱夫特：平凡人的绿茵传奇》（2025年）                                          | https://pan.quark.cn/s/de64ab07b6d1 |
 | 《小手指君别碰我》（2025年）                                               | https://pan.quark.cn/s/cca040c5da90 |
 | 《当你拯救完世界》（2022年）                                               | https://pan.quark.cn/s/7c55e997d0fa |
 | 《地狱客栈》（共2季）（2024-2025年）                                        | https://pan.quark.cn/s/8a53f8217c36 |
