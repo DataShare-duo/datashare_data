@@ -1,9 +1,41 @@
 # 分享数据
 
-更新时间：2026-02-12 
+更新时间：2026-02-13 
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《皇家棕榈》（共2季）（2024-2025年）                                        | https://pan.quark.cn/s/d4b487d1a1b4 |
+| 《孤寂午后》（2024年）                                                  | https://pan.quark.cn/s/432754d56297 |
+| 《男与女》（1983年）                                                   | https://pan.quark.cn/s/3a6e33dbf597 |
+| 《胖子、爱情和错误！》（2025年）                                             | https://pan.quark.cn/s/574b89b8e0f5 |
+| 《占有者》（2020年）                                                   | https://pan.quark.cn/s/1a47902acf0e |
+| 《祝你好运》（2022年）                                                  | https://pan.quark.cn/s/caf09fa82713 |
+| 《羊崽》（2021年）                                                    | https://pan.quark.cn/s/345d6d0aa133 |
+| 《亚当斯一家》（共2部）（2019-2021年）                                       | https://pan.quark.cn/s/c01d1b705a44 |
+| 《操控游戏》（2025年）                                                  | https://pan.quark.cn/s/2a105d5984b3 |
+| 《美国达人》（共17季+冠军赛）（2006-2022年）                                   | https://pan.quark.cn/s/64ec132bc144 |
+| 《致命女人》（共2季）（2019-2021年）                                        | https://pan.quark.cn/s/2da60e055a8c |
+| 《杀出个黎明》（共3季）（2014-2016年）                                       | https://pan.quark.cn/s/1e9179c37e9b |
+| 《大头儿子和小头爸爸》（全集）（1995-2024年）                                    | https://pan.quark.cn/s/9824c9cd2c38 |
+| 《嗜血破晓》（2009年）                                                  | https://pan.quark.cn/s/f6e10fc15064 |
+| 《淡蓝之眸》（2022年）                                                  | https://pan.quark.cn/s/2d4bc38d88c8 |
+| 《2001个疯子》（共2部）（2005-2010年）                                     | https://pan.quark.cn/s/f0385838fa37 |
+| 《非礼勿视》（共2部）（2006-2014年）                                        | https://pan.quark.cn/s/de8460562ac2 |
+| 《异星觉醒》（2017年）                                                  | https://pan.quark.cn/s/d82a3fffae5f |
+| 《新浪潮》（2025年）                                                   | https://pan.quark.cn/s/27de6eaf2a3a |
+| 《惊天魔盗团》（共2部）（2013-2016年）                                       | https://pan.quark.cn/s/dc3c4cf691bf |
+| 《疗伤游戏》（2025年）                                                  | https://pan.quark.cn/s/cfe8fb909031 |
+| 《野原广志 午餐的流派》（2025年）                                            | https://pan.quark.cn/s/971f10594c59 |
+| 《大使馆谋杀案》（2025年）                                                | https://pan.quark.cn/s/8a22f6f1c358 |
+| 《冰湖行动》（2025年）                                                  | https://pan.quark.cn/s/4c62adfed5ed |
+| 《监所男子囚生记》（2025年）                                               | https://pan.quark.cn/s/2cd37497cb16 |
+| 《涨潮时接吻》（2025年）                                                 | https://pan.quark.cn/s/8760b802e16f |
+| 《21世纪资本论》（2019年）                                               | https://pan.quark.cn/s/d7ac78540499 |
+| 《乘着光影旅行——李屏宾的摄影人生》（2009年）                                      | https://pan.quark.cn/s/86ccc52ac9e2 |
+| 《玛丽埃尔都知道》（2025年）                                               | https://pan.quark.cn/s/f63f0e19854f |
+| 《你旁观的罪》（2025年）                                                 | https://pan.quark.cn/s/cb9f6f1f7c2f |
+| 《橘郡豪宅》（共4季）（2022-2025年）                                        | https://pan.quark.cn/s/5abdd0912803 |
+| 《灵指》（2025年）                                                    | https://pan.quark.cn/s/aeb8677f0fb8 |
 | 《兽藏我心》（2025年）                                                  | https://pan.quark.cn/s/4c4e99f13fc2 |
 | 《天使的对话》（1985年）                                                 | https://pan.quark.cn/s/6111b585e27e |
 | 《恐鲨》（2025年）                                                    | https://pan.quark.cn/s/ec88a252fe37 |
