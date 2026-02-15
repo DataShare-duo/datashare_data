@@ -1,9 +1,60 @@
 # 分享数据
 
-更新时间：2026-02-14 
+更新时间：2026-02-15 
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《小人物之歌》（2025年）                                                 | https://pan.quark.cn/s/f72514d61a12 |
+| 《10号舱里的女人》（2025年）                                              | https://pan.quark.cn/s/e7ca21dbe7f0 |
+| 《身为暗杀者的我明显比勇者还强》（2025年）                                        | https://pan.quark.cn/s/50a1f3b135a9 |
+| 《了不起的埃莉诺》（2025年）                                               | https://pan.quark.cn/s/208f76acfb30 |
+| 《沙漠往事》（2022年）                                                  | https://pan.quark.cn/s/2ce31b0a0133 |
+| 《疯狂的爱》（2014年）                                                  | https://pan.quark.cn/s/894e3f808c51 |
+| 《少女型兵器想要成为家人》（2025年）                                           | https://pan.quark.cn/s/3a1ee6c0caa2 |
+| 《荣耀之女》（2014年）                                                  | https://pan.quark.cn/s/d662a9119c9c |
+| 《再见箱舟》（1984年）                                                  | https://pan.quark.cn/s/b6711512110e |
+| 《机械女仆·玛丽》（2025年）                                               | https://pan.quark.cn/s/344fb9ccbf91 |
+| 《十角馆事件》（2024年）                                                 | https://pan.quark.cn/s/b0e989ae0e9c |
+| 《从前的光景》（2025年）                                                 | https://pan.quark.cn/s/86c934d2ee43 |
+| 《笨拙之极的前辈》（2025年）                                               | https://pan.quark.cn/s/42282cd2ad52 |
+| 《最后可以再拜托您一件事吗》（2025年）                                          | https://pan.quark.cn/s/7a8e388ff4ab |
+| 《娑婆气》（2025年）                                                   | https://pan.quark.cn/s/1297987cff80 |
+| 《惊天营救》（共2部）（2020-2023年）                                        | https://pan.quark.cn/s/1b5a819cb764 |
+| 《假爸爸》（2025年）[喜剧]                                               | https://pan.quark.cn/s/3d67cfd0f21a |
+| 《性之道》（1992年）                                                   | https://pan.quark.cn/s/bdb14449218b |
+| 《性福演算法》（共2季）（2021-2023年）                                       | https://pan.quark.cn/s/6738f94979d7 |
+| 《科学禁区》（2009年）                                                  | https://pan.quark.cn/s/34bb8f32b558 |
+| 《野生的最终BOSS出现了》（2025年）                                          | https://pan.quark.cn/s/28f3742aa707 |
+| 《不动声色的柏田小姐与喜形于色的太田君》（2025年）                                    | https://pan.quark.cn/s/f9c980e7cdfa |
+| 《致不灭的你》（共3季）（2021-2025年）                                       | https://pan.quark.cn/s/3b6042caaa73 |
+| 《东岛丹三郎想成为假面骑士》（2025年）                                          | https://pan.quark.cn/s/86087b0efc6e |
+| 《婚戒物语 》（共2季）（2024-2025年）                                       | https://pan.quark.cn/s/a112f9955bd1 |
+| 《人浮于爱》（2025年）                                                  | https://pan.quark.cn/s/9bd19246c01a |
+| 《龙卷风》（1996年）                                                   | https://pan.quark.cn/s/61ce7246fb31 |
+| 《龙卷风》（2024年）                                                   | https://pan.quark.cn/s/9fca3b1b2301 |
+| 《疯狂大营救》（2021年）                                                 | https://pan.quark.cn/s/5458bd21340a |
+| 《阿姆斯特丹帝国》（2025年）                                               | https://pan.quark.cn/s/8d2b4835a7a5 |
+| 《猎魔人：老鼠盗贼团》（2025年）                                             | https://pan.quark.cn/s/0216dc8b5f93 |
+| 《亲爱的X》（2025年）                                                  | https://pan.quark.cn/s/d553cf131b2b |
+| 《银莲花》（2025年）（美版）                                               | https://pan.quark.cn/s/f205ccddc6e8 |
+| 《一千零一夜》（共3部）（2015年）                                            | https://pan.quark.cn/s/a514040e7f65 |
+| 《无处寻觅》（2019年）                                                  | https://pan.quark.cn/s/15a67b41536b |
+| 《恶食千金与狂血公爵》（2025年）                                             | https://pan.quark.cn/s/ed1ee05bbd04 |
+| 《魔法药水救救我》（2025年）                                               | https://pan.quark.cn/s/c83087b333c3 |
+| 《神奇四侠》（共4部）（2005-2025年）                                        | https://pan.quark.cn/s/6f7721ce350b |
+| 《殊死一搏》（2024年）                                                  | https://pan.quark.cn/s/69568b401cee |
+| 《赊刀人》（2024年）                                                   | https://pan.quark.cn/s/303764a46258 |
+| 《吞天巨鲨》（2024年）                                                  | https://pan.quark.cn/s/a11aacd5bdcc |
+| 《无敌的我是英雄爸爸和精灵妈妈的女儿》（2025年）                                     | https://pan.quark.cn/s/e93266d28406 |
+| 《小丑回魂：欢迎来到德里镇》（2025年）                                          | https://pan.quark.cn/s/d0c8b4c4966b |
+| 《数码宝贝》（电视剧8季+电影10部+OVA）（1999-2025年）                            | https://pan.quark.cn/s/413f690a1c8c |
+| 《台风商社》（2025年）                                                  | https://pan.quark.cn/s/8add1a2e1183 |
+| 《洗冤录》（共2季+电影）（1999-2022年）                                      | https://pan.quark.cn/s/04decca1617d |
+| 《古诺希亚》（2025年）                                                  | https://pan.quark.cn/s/ed73e7d2ff28 |
+| 《年轻的教宗》（2016年）                                                 | https://pan.quark.cn/s/964e31904474 |
+| 《变身圣诞老人》（2025年）                                                | https://pan.quark.cn/s/f236493956d7 |
+| 《粉碎机》（2025年）                                                   | https://pan.quark.cn/s/87ad78ab6f17 |
+| 《请说是》（2025年）                                                   | https://pan.quark.cn/s/3f832180a033 |
 | 《皇家棕榈》（共2季）（2024-2025年）                                        | https://pan.quark.cn/s/d4b487d1a1b4 |
 | 《孤寂午后》（2024年）                                                  | https://pan.quark.cn/s/432754d56297 |
 | 《男与女》（1983年）                                                   | https://pan.quark.cn/s/3a6e33dbf597 |
