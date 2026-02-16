@@ -1,9 +1,76 @@
 # 分享数据
 
-更新时间：2026-02-15 
+更新时间：2026-02-16 
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《鬼神警察》（2025年）                                                  | https://pan.quark.cn/s/7b34bc2b34ec |
+| 《恐惧拉斯维加斯》（1998年）                                               | https://pan.quark.cn/s/1eb206834b12 |
+| 《ON 异常犯罪捜査官 藤堂比奈子》（2016年）                                      | https://pan.quark.cn/s/5f3c9dbffbd8 |
+| 《陌生人：第一章》（2024年）                                               | https://pan.quark.cn/s/e97e1b72a91f |
+| 《如果有腿，我会踢你》（2025年）                                             | https://pan.quark.cn/s/5c23b23da39f |
+| 《恩秀的好日子》（2025年）                                                | https://pan.quark.cn/s/68cd818c48bb |
+| 《皇室家族》（2025年）                                                  | https://pan.quark.cn/s/6e651eb61102 |
+| 《王牌对王牌》（共9季）（2016-2025年）                                       | https://pan.quark.cn/s/b91651d4c692 |
+| 《日常生存自救手册》（2010年）                                              | https://pan.quark.cn/s/0ad73efb5760 |
+| 《活死人归来》（共5部）（1985-2005年）                                       | https://pan.quark.cn/s/ee81b8abebfe |
+| 《惊变28天》（2002年）                                                 | https://pan.quark.cn/s/e508ea2d5ada |
+| 《D-Day 6.6.1944》（2004年）                                        | https://pan.quark.cn/s/ebd56ebdfbbb |
+| 《希维斯：英雄之声》（2025年）                                              | https://pan.quark.cn/s/a114647c7e0b |
+| 《跨越种族与你相恋》（2025年）                                              | https://pan.quark.cn/s/1eb23e406e4f |
+| 《完美邻居：佛州致命邻里冲突实录》（2025年）                                       | https://pan.quark.cn/s/6f6ced640534 |
+| 《永久的黄昏》（2025年）                                                 | https://pan.quark.cn/s/1f7792da0919 |
+| 《我的青春》（2025年）                                                  | https://pan.quark.cn/s/c3aecf3bbca6 |
+| 《生而为狗 我很幸福》（2023年）                                             | https://pan.quark.cn/s/1b093ac4ec0d |
+| 《她行走于黑暗中》（2025年）                                               | https://pan.quark.cn/s/295ec0835a18 |
+| 《住在清潭洞》（2011年）                                                 | https://pan.quark.cn/s/3fbc086c489f |
+| 《毒海狂涛：鱼尾村离奇事件》（2025年）                                          | https://pan.quark.cn/s/16c8d84550c3 |
+| 《闹鬼酒店》（2025年）                                                  | https://pan.quark.cn/s/f43b4c486c85 |
+| 《教练》（2025年）                                                    | https://pan.quark.cn/s/9e5d004fcda6 |
+| 《天王星2324》（2024年）                                               | https://pan.quark.cn/s/dc7a0802c40e |
+| 《爸爸活》（2017年）                                                   | https://pan.quark.cn/s/c630ece02f74 |
+| 《永不完结的故事》（2025年）                                               | https://pan.quark.cn/s/3b53796bec51 |
+| 《库德拉特》（共2部）（2022-2025年）                                        | https://pan.quark.cn/s/b4b66d07d4c8 |
+| 《指到谁谁就死》（2024年）                                                | https://pan.quark.cn/s/6d968280cff2 |
+| 《致命威胁》（2025年）                                                  | https://pan.quark.cn/s/4c37995ca73d |
+| 《摩托日记》（2004年）                                                  | https://pan.quark.cn/s/f1c5b0bdf02f |
+| 《战栗1978》（2024年）                                                | https://pan.quark.cn/s/b890b224222f |
+| 《队友太弱所以贯彻辅助的宫廷魔法师，惨遭流放目标却是最强》（2025年）                           | https://pan.quark.cn/s/5eea77aa769c |
+| 《哨兵》（2025年）                                                    | https://pan.quark.cn/s/2382d1c6d7f2 |
+| 《地下房客》（2025年）                                                  | https://pan.quark.cn/s/6e7e1be09c17 |
+| 《快乐赢家》（2024年）                                                  | https://pan.quark.cn/s/0bada147e799 |
+| 《如果这个世界是一座舞台，后台究竟在哪里》（2025年）                                   | https://pan.quark.cn/s/05d648e8e29a |
+| 《攻击鬼魂13号》（2025年）                                               | https://pan.quark.cn/s/984cdf41fc3d |
+| 《浊流之争》（2025年）                                                  | https://pan.quark.cn/s/99e9c27874f1 |
+| 《毒海狂涛》（共2季）（2023-2025年） - 地主盘-地主家有余粮                           | https://pan.quark.cn/s/8c0feb6960e3 |
+| 《蓝色管弦乐》（共2季）（2023-2025年）                                       | https://pan.quark.cn/s/2caff09e8b38 |
+| 《驱魔录》（2024年）                                                   | https://pan.quark.cn/s/03e1e8b899b3 |
+| 《一点点超能力》（2025年）                                                | https://pan.quark.cn/s/5da9222d5f82 |
+| 《宇宙嫁给我》（2025年）                                                 | https://pan.quark.cn/s/4ecbb193e621 |
+| 《深海狂鲨》（共3部）（1999-2020年）                                        | https://pan.quark.cn/s/530cf0b25494 |
+| 《矢野同学观察日记》（2025年）                                              | https://pan.quark.cn/s/d56e083af3ef |
+| 《小宽宽》（2014年）                                                   | https://pan.quark.cn/s/6dbafc464e7c |
+| 《永生战士》（2022年）                                                  | https://pan.quark.cn/s/817d5e51d530 |
+| 《最后一票》（2025年）                                                  | https://pan.quark.cn/s/9bd644b9ea6b |
+| 《冬日之死》（2025年）                                                  | https://pan.quark.cn/s/5620ecc98f34 |
+| 《怪物》（2025年）[意大利剧]                                              | https://pan.quark.cn/s/e414d88eb87b |
+| 《绝妙舞步》（2025年）                                                  | https://pan.quark.cn/s/d31bb9fd0f83 |
+| 《推动摇篮的手》（2025年）                                                | https://pan.quark.cn/s/335a42cad0be |
+| 《转生恶女的黑历史》（2025年）                                              | https://pan.quark.cn/s/164c4d014e26 |
+| 《长生血战》（2025年）                                                  | https://pan.quark.cn/s/6ee460bc7c95 |
+| 《马来亚三日》（2023年）                                                 | https://pan.quark.cn/s/d161f45809f9 |
+| 《丧尸的屁股》（2012年）                                                 | https://pan.quark.cn/s/9f9791e008ae |
+| 《海关战线》（2024年）                                                  | https://pan.quark.cn/s/387ad2a33956 |
+| 《危机：龙潭之战》（2019年）                                               | https://pan.quark.cn/s/e180618762ae |
+| 《荒岛求生》（2024年）                                                  | https://pan.quark.cn/s/99c5272e5674 |
+| 《绝命无常镇》（2024年）                                                 | https://pan.quark.cn/s/a20f26a49d7c |
+| 《好狗狗》（2025年）                                                   | https://pan.quark.cn/s/a849a222b41c |
+| 《特别小组》（2025年）                                                  | https://pan.quark.cn/s/ced296438ffa |
+| 《难以置信的事实》（1989年）                                               | https://pan.quark.cn/s/c2adc9c4e041 |
+| 《急转直下》（2025年）                                                  | https://pan.quark.cn/s/3ed513020eb6 |
+| 《拥有超常技能的异世界流浪美食家》（共2季）（2023-2025年）                             | https://pan.quark.cn/s/c29a9847d512 |
+| 《体能之巅》（共3季）（2023-2025年）                                        | https://pan.quark.cn/s/56e22918356d |
+| 《海达》（2025年）                                                    | https://pan.quark.cn/s/74f109ad9ada |
 | 《小人物之歌》（2025年）                                                 | https://pan.quark.cn/s/f72514d61a12 |
 | 《10号舱里的女人》（2025年）                                              | https://pan.quark.cn/s/e7ca21dbe7f0 |
 | 《身为暗杀者的我明显比勇者还强》（2025年）                                        | https://pan.quark.cn/s/50a1f3b135a9 |
