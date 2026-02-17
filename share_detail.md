@@ -1,9 +1,76 @@
 # 分享数据
 
-更新时间：2026-02-16 
+更新时间：2026-02-17 
 
 | 资源名称                                                           | 分享链接                                |
 |:---------------------------------------------------------------|:------------------------------------|
+| 《木兰花》（1999年）                                                   | https://pan.quark.cn/s/30f303e0b9dc |
+| 《幻梦墓园》（2015年）                                                  | https://pan.quark.cn/s/111412a9ad83 |
+| 《牧羊人》（2024年）                                                   | https://pan.quark.cn/s/5e542cd050c5 |
+| 《善良的生存》（2022年）                                                 | https://pan.quark.cn/s/6f7b23033b49 |
+| 《一切安好》（2022年）                                                  | https://pan.quark.cn/s/39033aaf02b3 |
+| 《勒阿弗尔》（2011年）                                                  | https://pan.quark.cn/s/2ca4c64c7317 |
+| 《猎罪图鉴》（共2季）（2022-2024年）                                        | https://pan.quark.cn/s/030b722f9649 |
+| 《法证先锋》（共6季）（2006-2024年）                                        | https://pan.quark.cn/s/a1d2fd0ec13a |
+| 《锁红颜》（2025年）                                                   | https://pan.quark.cn/s/91d03744a76e |
+| 《卫斯理传奇》（1998年）                                                 | https://pan.quark.cn/s/50ee5adb0069 |
+| 《列宁格勒牛仔征美记》（1989年）                                             | https://pan.quark.cn/s/9528106c3e76 |
+| 《雪与熊》（2022年）                                                   | https://pan.quark.cn/s/86d5d884d5ab |
+| 《青川入梦》（2025年）                                                  | https://pan.quark.cn/s/4277023c569c |
+| 《恋马狂》（1977年）                                                   | https://pan.quark.cn/s/4f2c994bf0a5 |
+| 《兰博基尼》（2022）                                                   | https://pan.quark.cn/s/83791ed3f2d5 |
+| 《麦子小姐》（2013年）                                                  | https://pan.quark.cn/s/0398b4cece98 |
+| 《青春猪头少年不会梦到兔女郎学姐》系列合集（2018-2025年）                              | https://pan.quark.cn/s/09deabc01c8a |
+| 《在街上》（2019年）                                                   | https://pan.quark.cn/s/60e9fd5d3c03 |
+| 《稍微想起一些》（2021年）                                                | https://pan.quark.cn/s/07672e7c5a92 |
+| 《食人之饥》（2018年）                                                  | https://pan.quark.cn/s/1c66829a3c61 |
+| 《异星危机》（2020年）                                                  | https://pan.quark.cn/s/21bdb0297158 |
+| 《尸控警戒》（2018年）                                                  | https://pan.quark.cn/s/5d559f107133 |
+| 《尸潮汹涌》（2023年）                                                  | https://pan.quark.cn/s/f2235350f645 |
+| 《人体蜈蚣》（共3部）（2009-2015年）                                        | https://pan.quark.cn/s/efd75160b51c |
+| 《单恋世界》（2025年）                                                  | https://pan.quark.cn/s/9bb808b9eec7 |
+| 《凶宅怪谈》（共2部）（2020-2025年）                                        | https://pan.quark.cn/s/28c3e3ba3d0b |
+| 《世界上最早的春天》（2025年）                                              | https://pan.quark.cn/s/3212798b0817 |
+| 《想被拥抱的12个女人》（2019年）                                            | https://pan.quark.cn/s/c9473d9569c7 |
+| 《冥界警局》（共2部）（2013-2022年）                                        | https://pan.quark.cn/s/f826a858b9cb |
+| 《香草的天空》（2001年）                                                 | https://pan.quark.cn/s/fcc19614a76c |
+| 《驱魔人》（1973年）                                                   | https://pan.quark.cn/s/f49310e8950b |
+| 《驱魔人：信徒》（2023年）                                                | https://pan.quark.cn/s/7cb6eb7a16ed |
+| 《囚禁》（2007年）                                                    | https://pan.quark.cn/s/5e24342c9181 |
+| 《囚禁》（2022年）                                                    | https://pan.quark.cn/s/f07e8ac12f9c |
+| 《杀手继母》（2022年）                                                  | https://pan.quark.cn/s/4d0169793fef |
+| 《简爱》（2011年）                                                    | https://pan.quark.cn/s/705cc1c65c4d |
+| 《初步举证》（2022年）                                                  | https://pan.quark.cn/s/c7e034d65ee8 |
+| 《还钱》（2024年）                                                    | https://pan.quark.cn/s/2986e7891fb6 |
+| 《周恩来的四个昼夜》（2013年）                                              | https://pan.quark.cn/s/62750cc3ebbc |
+| 《四大名捕》（共3部）（2012-2014年）                                        | https://pan.quark.cn/s/32957095b131 |
+| 《我的父亲母亲》（1999年）                                                | https://pan.quark.cn/s/c26f1bde338c |
+| 《不擅长吸血的吸血鬼》（2025年）                                             | https://pan.quark.cn/s/16b42483d828 |
+| 《猫眼三姐妹》（2025年）                                                 | https://pan.quark.cn/s/862717eca54d |
+| 《血腥死亡营》（1983年）                                                 | https://pan.quark.cn/s/ff93494739e8 |
+| 《鬼玩人》（共3季）（2015-2018年）                                         | https://pan.quark.cn/s/60045ff5c284 |
+| 《吸血鬼猎人巴菲》（共7季）（1997-2002年）                                     | https://pan.quark.cn/s/662177089df2 |
+| 《辣手回春》（2000年）                                                  | https://pan.quark.cn/s/eb2157c6f14a |
+| 《螳螂》（2025年）                                                    | https://pan.quark.cn/s/b5c4bb832c40 |
+| 《驱魔道长》（1993年）                                                  | https://pan.quark.cn/s/517dc42b0a8e |
+| 《邪恶与疯狂》（2021年）                                                 | https://pan.quark.cn/s/78734d4d834b |
+| 《巴黎恋人》（2004年）                                                  | https://pan.quark.cn/s/79db95c05b31 |
+| 《不汗党》（2017年）                                                   | https://pan.quark.cn/s/ff2374b2f6c5 |
+| 《活跳尸》（共3部）（1985-2003年）                                         | https://pan.quark.cn/s/6a31aed0f5c0 |
+| 《大话王》（1997年）                                                   | https://pan.quark.cn/s/002e1418b122 |
+| 《阿呆与阿瓜》（共2部）（1994-2014年）                                       | https://pan.quark.cn/s/2f732103cd00 |
+| 《新抢钱夫妻》（2005年）                                                 | https://pan.quark.cn/s/c4a20e00964e |
+| 《一个头两个大》（2000年）                                                | https://pan.quark.cn/s/4ff1fc56c8bc |
+| 《忍者与极道》（2025年）                                                 | https://pan.quark.cn/s/42c74c32d19e |
+| 《弹珠汽水瓶里的千岁同学》（2025年）                                           | https://pan.quark.cn/s/7dd6abc86898 |
+| 《异世界四重奏》（共3季+剧场版）（2019-2025年）                                  | https://pan.quark.cn/s/3f97eb5ed32d |
+| 《伊甸园》（2025年）                                                   | https://pan.quark.cn/s/03ea0f29316e |
+| 《战争猛兽》（2025年）                                                  | https://pan.quark.cn/s/63b8ac2bd785 |
+| 《聆听者》（2024年）                                                   | https://pan.quark.cn/s/64b7dbf34158 |
+| 《尊严：真枪实弹》（2025年）                                               | https://pan.quark.cn/s/1718733c7ef5 |
+| 《素材采集家的异世界旅行记》（2025年）                                          | https://pan.quark.cn/s/a4e1f8f82bd6 |
+| 《这里是充满笑容的职场。》（2025年）                                           | https://pan.quark.cn/s/51376380fcd2 |
+| 《浪漫匿名者》（2025年）                                                 | https://pan.quark.cn/s/bb162af63c24 |
 | 《鬼神警察》（2025年）                                                  | https://pan.quark.cn/s/7b34bc2b34ec |
 | 《恐惧拉斯维加斯》（1998年）                                               | https://pan.quark.cn/s/1eb206834b12 |
 | 《ON 异常犯罪捜査官 藤堂比奈子》（2016年）                                      | https://pan.quark.cn/s/5f3c9dbffbd8 |
