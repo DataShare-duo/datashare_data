@@ -31,8 +31,8 @@ https://github.com/DataShare-duo/datashare_data/blob/main/share_detail.md
 | 资源名称 | 链接                                |
 | -------- | ----------------------------------- |
 | 2025年   | https://pan.quark.cn/s/61432dd78605 |
-| 2026年   | https://pan.quark.cn/s/7543f8f14ea2 |
-| 历史年份 | https://pan.quark.cn/s/0808106b32c2 |
+| 2026年   | https://pan.quark.cn/s/5f3367b03eb4 |
+| 历史年份 | https://pan.quark.cn/s/8105056fa964 |
 
 ### 电影
 
