@@ -30,7 +30,7 @@ https://github.com/DataShare-duo/datashare_data/blob/main/share_detail.md
 
 | 资源名称 | 链接                                |
 | -------- | ----------------------------------- |
-| 2025年   | https://pan.quark.cn/s/0ad070502b96 |
+| 2025年   | https://pan.quark.cn/s/61432dd78605 |
 | 2026年   | https://pan.quark.cn/s/7543f8f14ea2 |
 | 历史年份 | https://pan.quark.cn/s/0808106b32c2 |
 
